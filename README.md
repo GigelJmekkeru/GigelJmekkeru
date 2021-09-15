@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GigelJmekkeru
+- 👀 I’m interested in your mom
+- 📫 How to reach me: I'll call you
